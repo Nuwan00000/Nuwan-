@@ -1,1 +1,1 @@
-Nuwan bo
+Nuwan bot
